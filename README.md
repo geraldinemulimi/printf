@@ -1,1 +1,1 @@
-A pair project by Bina Mobisa and Geraldine Mulimi
+A pair project of Bina Mobisa and Geraldine Mulimi
